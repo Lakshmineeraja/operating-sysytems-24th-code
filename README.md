@@ -1,1 +1,0 @@
-# operating-sysytems-24th-code
